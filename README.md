@@ -1,2 +1,7 @@
-# AlsPicoEngines
-Self compiled new PicoChess Engines
+# Sorry but due to Piracy, I've had to delete all my work.
+  
+Al.
+  
+ScallyCoops@gmail.com
+
+
